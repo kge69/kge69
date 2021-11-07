@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kge69
+- 👀 I’m interested in video games, and shows.
+- 🌱 I’m currently learning scripting, progamming.
+- 💞️ I’m looking to collaborate on making games.
+- 📫 How to reach me itsmelody43@gmail.com
